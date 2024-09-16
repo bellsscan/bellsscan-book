@@ -1,1 +1,1 @@
-CAT420 is coming soon!
+BellsCoin is the first meme coin!
